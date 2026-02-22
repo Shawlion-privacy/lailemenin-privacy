@@ -84,7 +84,7 @@
 
 如果您对本隐私政策有任何疑问或建议，请通过以下方式联系我们：
 
-- 邮箱：[your-email@example.com]
+- 邮箱：[shawlion@qq.com]
 
 ## 十一、适用法律
 
